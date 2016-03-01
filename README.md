@@ -29,3 +29,4 @@ Kilo Erkek/Kilo Dişi: 90-110/80-100 kg
 Boy Erkek/Boy Dişi: 75-85/70-80 cm
 
 Tibet Mastiff ırkı şu an için üretimimizde bulunmamaktadır, Talep edilmesi durumunda şecere ve kimlik evrakları ile birlikte 10 gün içinde teslim edilmektedir.
+Kaynak : http://www.kopek.tc
